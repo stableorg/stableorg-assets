@@ -1,0 +1,1 @@
+# stableorg-assets
